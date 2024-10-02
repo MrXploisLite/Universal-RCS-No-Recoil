@@ -1,3 +1,3 @@
-Cupu lo tolol pake No Recoil :V
+Cupu lo tolol pake No Recoil
 
 Dah terserah elu aja
